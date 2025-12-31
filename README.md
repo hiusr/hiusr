@@ -1,5 +1,7 @@
 ︎ ︎︎ ︎︎ ︎︎ ︎︎ ︎︎![](https://biscuit.crd.co/assets/images/gallery02/48e64a33.gif?v=532faf5f)  `:: ponytown status ︎︎ ︎︎ ︎︎ `
 
+***none*** - I'm online!!!
+
 ***busy (⛔)*** probably semi-afk, ***w2i*** is recommended.
 
 ***away (🌙)*** offtab,, free c+h! ! I appreciate you if you do :-] I might or might not respond though, even with whispers!
