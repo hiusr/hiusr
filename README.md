@@ -1,3 +1,1 @@
-w2i if i don't respond!!
-
-![](https://media1.tenor.com/m/CFGVWncRe4oAAAAC/hoops-and-yoyo-hoops.gif) ![](https://media1.tenor.com/m/M94SvJR5rNcAAAAC/yoyo-hoopsandyoyo.gif)
+![](https://cdn.discordapp.com/attachments/1380193581356154993/1471911199548510321/20241207191056-8b5f7c18.gif?ex=6991f920&is=6990a7a0&hm=f3e72b58224c92bb00400f9ebb43d18e7754f94668ea129bbd35fdd1d0209ba4&)
