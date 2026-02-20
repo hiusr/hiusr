@@ -1,3 +1,1 @@
-(⁠゜⁠o⁠゜⁠;
-
-<img width="99" height="56" alt="Az8BQkmCEAAdZpz" src="https://github.com/user-attachments/assets/9b2fef79-d2db-415c-9479-1dafa5ef8d94" />
+![](https://cdn.discordapp.com/attachments/1380193581356154993/1473277491211796582/the.png?ex=69999496&is=69984316&hm=34813969bd7518ab672fbdd775ae4211f40858fab447e396874a7c77e7517cbf&)
